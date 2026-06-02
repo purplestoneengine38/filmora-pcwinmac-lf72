@@ -1,4 +1,4 @@
-# 
+# Instantáneo Filmora plantillas para Mac OS | Automático Filmora plantillas para PC Windows. Con precomposición y automatización — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
